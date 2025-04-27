@@ -5,13 +5,15 @@
 
 
 
-➤ primarily barry online, but i go by a lot!
+➤ primarily barry online, but i go by a lot!             
 
 
 ➤ he / him. unlabeled
 
 ➤ 18+
-                
+
+		 (read pronouns page for extra) 
+  
       ..        
                
 			  
