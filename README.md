@@ -1,9 +1,33 @@
 
 ![8cff2adfae1dbbc2151f9223f9acd755](https://github.com/user-attachments/assets/c9c52372-915d-4c27-904f-20d4dd5019d7)
 
+...
+				....
+    								....
+
+     									...
+
+.	🟢 = online!! feel free to int
+
+.	🌙 = probably offtab or playing some game
+
+.	💬 = pleasee int! probably super ecstatic about something
+
+.	🎭 = down to roleplay .. usually if im super into the character
+
+.	🔴 = dniuf / dniuid (sometimes i forget its on)
 
 
+....
+			....
+   
+   ![662e292b5d8c0d51617c938d09ddee15](https://github.com/user-attachments/assets/a292455b-9f82-4b4f-9c06-59dfe989f553)
 
+
+   ...
+   				....
+
+       								.....
 
 ➤ primarily barry online, but i go by a lot!             
 
