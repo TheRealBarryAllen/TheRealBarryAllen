@@ -34,7 +34,7 @@
 
 ➤ he / him. unlabeled
 
-➤ 18+
+➤ a litte white boy
 
 		 (read pronouns page for extra) 
   
